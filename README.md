@@ -1,2 +1,3 @@
 # CAPIVARAloka
-Hey man, I'm CJ I like cars and bitches and pizza and your mother/sister whatever
+Hey man, I'm CJ I like cars and pizza and your mother/sister whatever
+sututututtutututututut paaaaaa weeeeeeeeeeeeeee brap brap brap brap brap
